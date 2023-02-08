@@ -1,2 +1,2 @@
 # web_install
-web_install_contact_me，vx 158401310
+web_install_contact_me，vx搜 158401310
